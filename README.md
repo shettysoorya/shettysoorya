@@ -19,7 +19,7 @@
 ###
 
 <div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=shivaraj2003.shivaraj2003&"  />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=shettysoorya.shettysoorya&"  />
 </div>
 
 ###
